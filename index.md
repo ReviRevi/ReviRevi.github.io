@@ -8,6 +8,8 @@ Syrup is free           | Add fries for            $0.50 | Hope you can stomach 
 
 ### Terms and Conditions
 
-Don't cause any trouble or throw around any unauthorized code.
+1. Don't cause any trouble or throw around any unauthorized code.
+2. Have fun with things.
+3. Turn in your assignments on time.
 
 ##### Prices are Subject to Change.
